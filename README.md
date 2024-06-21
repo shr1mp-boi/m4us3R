@@ -14,6 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-- Lo-fi 🎧
-- Midnight coder 🌃
-- Pizza-Sub lover 🥖
+- PhD in shrimp posture
+- 3 SIGSEGV per Dr. Pepper
+- Pizza-sub enjoyer
