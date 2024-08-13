@@ -17,4 +17,4 @@ Here are some ideas to get you started:
 - PhD in shrimp posture
 - 3 SIGSEGV per Dr. Pepper
 - Pizza-sub enjoyer
- [https://youtu.be/OhS11K3sEp8?si=_idAMTNXL1-TXKYe]
+- [https://youtu.be/OhS11K3sEp8?si=_idAMTNXL1-TXKYe]
